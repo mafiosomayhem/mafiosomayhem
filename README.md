@@ -1,16 +1,24 @@
-## Hi there 👋
+<p align="center">
+https://5sos3.atabook.org
 
-<!--
-**mafiosomayhem/mafiosomayhem** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<p align="center">
+my name is cigar but do call me emily...　　　src attached FREAK　　　ask4more info idgaf
+</p>
+　　
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+<img src="https://files.catbox.moe/je1ylc.png" width="25%" height="25%">
+</p>
+　　
+
+<p align="center">
+<img src="https://files.catbox.moe/9esw0h.png" width="5%" height="5%">　<<　me　irl　trust
+<p align="center">
+
+
+   
+<img src="https://komarev.com/ghpvc/?username=mafiosomayhem&label=henchmen&color=d9c73d">
+<p align="center">
+<img src="https://hit.yhype.me/github/profile?account_id=168690679"> 
+</p>
