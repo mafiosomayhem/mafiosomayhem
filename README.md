@@ -4,6 +4,8 @@ https://5sos3.atabook.org
 
 <p align="center">
 my name is cigar but do call me emily...　　　src attached FREAK　　　ask4more info idgaf
+<p align="center">
+usually in the osc area　　　always iwcuf　　　skins vary 4 whos fronting
 </p>
 　　
 
